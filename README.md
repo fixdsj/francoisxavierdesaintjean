@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨‍🎓J'étudie actuellement à Supinfo<br><br>💬 Nh'ésitez pas à me contacter su Linkedin ou sur mon site<br>
+👨‍🎓J'étudie actuellement à Supinfo<br><br>💬 Nh'ésitez pas à me contacter sur Linkedin ou sur mon site<br>
 
 
 ## 🌐 Socials:
